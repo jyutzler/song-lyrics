@@ -33,5 +33,4 @@ Can we learn to love our neighbor?
 I don't know but I wanna find out (X3)
 </pre>
     
-
 ©2017 Jeff Yutzler 
