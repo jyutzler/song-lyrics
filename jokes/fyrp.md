@@ -7,21 +7,18 @@
    
     I hear these voices in my head
     Guiding me towards a riff
-    I write the song
-    And record it down
+    I write the song and record it down
     And file it away
 
-    And six months later
-    I find it
+    And six months later I find it
     It's exactly the same
     On a single b-side
     Or compilation
     Or Track 3 of Disk 4 of some random bullshit side project
    
-    And what's worse
-    In the time it tok me 
+    And what's worse in the time it took me 
     To write this fucking song
-    You've written seven more
+    You have written seven more
     Just to piss me off
    
     So fuck you Robert Pollard
