@@ -1,1 +1,1 @@
-The content in this repository is the exclusive copyright of Jeff Yutzler. It is provided for informational purposes only. Nobody else can use, copy, distribute, or modify this work without expressed written permission.
+©2018 Jeff Yutzler. All rights reserved.
