@@ -8,7 +8,7 @@
     It rains on a leaf
     Everything is so
 
-    There's a tune in my hand with a song on it
+    There's a tune in my head with a song on it
     I follow the song
     The song plays by itself
 
