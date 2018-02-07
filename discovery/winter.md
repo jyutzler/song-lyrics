@@ -4,7 +4,7 @@
 
 http://web.archive.org/web/20060104084843/http://www.rebelasylum.com:80/poetry.html#winter
 
-In response, I wrote this poem.
+She subsequently rewrote the poem and published it as part of [Dark Sparkler](https://www.harpercollins.com/9780062348166/dark-sparkler). In response, I wrote this poem.
 
 ## @AT
     Who died?
