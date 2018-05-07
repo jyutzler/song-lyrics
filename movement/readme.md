@@ -2,8 +2,8 @@
 
 #### Side One
 1. [Thunderbird](thunderbird.md)
-2. [Song](song.md)
-3. [Written](written.md)
+2. [Written](written.md)
+3. [Song](song.md)
 4. [Heavy](heavy.md)
 
 #### Side Two
