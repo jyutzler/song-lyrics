@@ -26,13 +26,23 @@
     You could have it all
     Or wander away
     
+    Why are you looking
+    No one is better
+    The dichotomies
+    Satisfied in whole
+    Only by yourself
+    
+    What could be better
+    Than the everything
+    Each and every side
+    Of the polygon
+    Complimentary
+    
     The dichotomy
     Sides matched perfectly
     The interest domain
     My needs are many
     And met by one
-    
-    [???]
     
     The models they strive for perfection
     But the combinations in the packaging
