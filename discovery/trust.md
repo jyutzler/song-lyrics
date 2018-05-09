@@ -1,6 +1,6 @@
 ## Trust
 
-    Who(m) do you trust?
+    Who do you trust?
     Do you know?
     Your family?
     The latest date?
