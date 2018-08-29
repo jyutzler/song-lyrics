@@ -18,11 +18,12 @@
     In the shopping mall
     Just like finding the model
     Of the atoms and the quarks
+    
     It's a discovery
     And that is what we do
     Figure out the world and describe it to you
     
--
+--------------------
 
     The best songs are discovered not written
     
@@ -42,11 +43,12 @@
     Hips-to-waist ratio and A goes to B
     Or words on a page
     You don't need more examples
+    
     It's a discovery
     And that is what we do
     Figure out the world and describe it to you
     
--
+----------------------
 
     What happens next?
     We can't anticipate
