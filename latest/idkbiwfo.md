@@ -6,7 +6,7 @@ We could go in any direction
 What's it gonna be?
 I don't know but I wanna find out (X3)
 
-You know you don't feel comfortable
+You say you don't feel comfortable
 That's no surprise, neither do I
 Can we make it work?
 I don't know but I wanna find out (X3)
