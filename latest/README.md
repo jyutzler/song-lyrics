@@ -5,7 +5,8 @@ This directory contains songs written this decade that are starting to coalesce 
 2. [Deconstruct My Psyche](deconstruct.md)
 3. Deconstruction (instrumental)
 4. [Particular](particular.md)
-5. [The Stream of Consciousness](stream.md)
+5. Particles (instrumental)
+6. [The Stream of Consciousness](stream.md)
 
 #### Side Two
 1. Instrumental #1 (instrumental)
