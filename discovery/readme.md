@@ -28,5 +28,5 @@ If I had it to do over, I'd use this running order, incorporating some songs fro
 2. Falling Into Thirds (instrumental)
 3. [Your Kind of Winter](winter.md)
 4. [Stamp](stamp.md)
-4. [East](east.md)
+5. [East](east.md)
 
