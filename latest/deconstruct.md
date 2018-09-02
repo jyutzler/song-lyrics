@@ -2,8 +2,8 @@
 
 #### _Chorus_
 
-    I need to deconstruct my psyche
-    I need to do whatever it takes
+    I have to deconstruct my psyche
+    I have to do whatever it takes
     Finding myself is the hardest part
     When I don't have faith
     And I don't know how to love
