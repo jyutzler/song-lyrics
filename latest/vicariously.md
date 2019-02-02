@@ -15,8 +15,8 @@
     Live vicariously through you (X4)
     
     Just understand that I might be a bit frustrated
-    My life's at a point where I probably can't have these things
-    That's alright because I
+    My life's at a point where I probably can't have these things...
+    ...That's alright because I
     Live vicariously through you (X3)
     But I'm happy for you
     Live vicariously through you (X4)
