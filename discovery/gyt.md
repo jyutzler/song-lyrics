@@ -36,7 +36,6 @@
     So I do what I can when I can
     I write you this song
 
-
     If I could give you anything
     I would give you everything (X4)
 
