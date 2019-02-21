@@ -9,8 +9,8 @@
     Everything is so
 
     There's a tune in my head with a song on it
-    I follow the song
-    The song plays by itself
+    I followed the song
+    The song played by itself
 
     It snows and then it melts on the garden
     Thank you
