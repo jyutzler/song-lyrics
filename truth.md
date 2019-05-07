@@ -13,7 +13,7 @@ Sometimes I will absolutely dare...</i>
 I don't need to be here; there's no problem that I solve
 Just get me out of the room and let the situation evolve
 <b>Making my problems your problems is the last thing I want to do</b>
-I would rather crash my car than keep this sentiment from your
+I would rather crash my car than keep this sentiment from you
 
 <i>I live my life in fear I have or I will do you wrong
 This will probably come to a head before too long
