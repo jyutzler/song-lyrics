@@ -3,7 +3,7 @@ This album has gone through a number of incarnations over the years.
 
 ### Current Version
 #### Side One
-1. The First One That You Played (instrumental)
+1. First (instrumental)
 2. [Picture](picture.md)
 3. [Dichotomy](dichotomy.md)
 4. [Trust](trust.md)
