@@ -22,7 +22,7 @@
     And get that picture turned right
     Together we'll get that picture turned right
     Together we will understand
-    And get that damned picture turned right
+    And get that dang picture turned right
     
     
 ©2012 Jeff Yutzler
