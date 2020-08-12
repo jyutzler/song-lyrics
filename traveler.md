@@ -8,7 +8,7 @@
     Searching for truth in a distant kingdom
     And your face is the world that surrounds me
     
-    Your eyes are the suns that bring life to this life
+    Your eyes are the suns that bring light to this life
     And their colors the sky they created
     Your irises blue like a summer morning
     Partially grayed by the lifting haze
