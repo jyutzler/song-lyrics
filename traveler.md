@@ -14,7 +14,7 @@
     Partially grayed by the lifting haze
     And your pupils black like a fall midnight
     Without the stars or the moon to impure
-    And bordering shades of read and violet
+    And bordering shades of red and violet
     As if they were the sight
     Of the horizon during dusk and dawn
     And these images are molded together
