@@ -20,9 +20,9 @@ It doesn't matter how hard you try
     It may be just a simple thought
     That shows you all your hell's been fought
     
-Was it the album that you heard last
-That gave you that little extra blast?
-Or could it be the words a friend just said
-That brings your life back from the dead
+Was it the album that you heard last    
+That gave you that little extra blast?    
+Or could it be the words a friend just said    
+That brings your life back from the dead    
 
 ©1990, 2000, 2020 Jeff Yutzler
