@@ -11,8 +11,8 @@ It doesn't matter how hard you try
 'Cause all your thoughts just turn awry   
 
 You look for God but He's not there   
-And all your hopes just turn to air
-You look yourself in the eye
+And all your hopes just turn to air    
+You look yourself in the eye    
 Mumble, moan, bitch, and cry   
 
 ---
