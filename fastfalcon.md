@@ -1,6 +1,6 @@
 ## Fast Falcon
 
-### Chorus
+#### Chorus
 
     Fast falcon (X3)
     Flying through the sandy desert
@@ -33,7 +33,7 @@ _chorus_
     Hopeful now
     Time to attack
 
-_chorus_
+----------
 
 _Rodent thinks he's safe_
 
