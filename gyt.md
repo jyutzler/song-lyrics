@@ -1,7 +1,7 @@
 ## Give You Thing
     Doesn't matter what I see
     Doesn't matter what draws you to me
-    Don't justify my loyalty
+    Why justify my loyalty
     It just doesn't matter
 
     It's an unspoken thing
