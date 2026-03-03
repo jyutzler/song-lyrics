@@ -30,7 +30,7 @@
     Tribalism is the way to doom
     Now we need a new direction
     To whittle away our naked feelings
-    Restoring us to our original promition
+    Restoring us to our original promotion
     Dismantle the tribe
 
 ©2020 Jeff Yutzler
