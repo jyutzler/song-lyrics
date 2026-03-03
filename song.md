@@ -38,7 +38,7 @@ Relay your thoughts and Inner emotions.
 Provide a release -- dance or freakout.
 
 You get to the point where the guitar's too loud
-And the drum beats too fasat and you can't please the crowd
+And the drum beats too fast and you can't please the crowd
 And you wonder what's left that won't make it a bore
 And you wonder what you'll find so that it's not such a chore
 ```
